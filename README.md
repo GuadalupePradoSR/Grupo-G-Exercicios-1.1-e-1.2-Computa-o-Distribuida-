@@ -1,0 +1,1 @@
+# Grupo-G-Exercicios-1.1-e-1.2-Computa-o-Distribuida-
